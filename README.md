@@ -1,1 +1,1 @@
-sveikas
+Atsidarai programele ir naudoji
